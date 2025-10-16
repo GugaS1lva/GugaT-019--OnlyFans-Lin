@@ -1,4 +1,4 @@
-# 🧦 ExclusiveFans - Site da Lin
+# 🧦 OnlyFans da Lin
 
 Um site fictício e divertido criado apenas para fins de entretenimento e brincadeira!
 
